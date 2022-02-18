@@ -1,0 +1,4 @@
+- 👋 Hola, soy Mariana Abigail Nuñez Enriquez
+- 👀 Estoy interesada en la medicina, astronomia y en la imformartica 
+- 🌱 Actualmente estudio en la Preparatoria Federal Lazaro Cardenas 
+- 💞️ Me gustan los deportes como la natación, el patinaje, futbol americano y skateboard
